@@ -8,6 +8,6 @@
 - 👯 I’m looking to collaborate on Global Conquest!
 - 🤔 I’m looking for help with German Language natürlich
 - 💬 Ask me about Kani being the tastiest food
-- 📫 How to reach me: I have some networks listed on [my website](bertolinocastro.github.io)
+- 📫 How to reach me: I have some networks listed on [my website](https://bertolinocastro.github.io)
 - 😄 Pronouns: Bertô, Bertolino, Bertola, Bertolucci, Bertsonsgeschwindigkeit (ja, das Wort ist fantastisch 😂)
 - ⚡ Fun fact: I stopped drinking coffee for 3 years... Now I'm recovering from my abstinence
