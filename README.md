@@ -10,4 +10,4 @@
 - 💬 Ask me about Kani being the tastiest food
 - 📫 How to reach me: I have some networks listed on [my website](https://bertolinocastro.github.io)
 - 😄 Pronouns: Bertô, Bertolino, Bertola, Bertolucci, Bertsonsgeschwindigkeit (ja, das Wort ist fantastisch 😂)
-- ⚡ Fun fact: I stopped drinking coffee for 3 years... Now I'm recovering from my abstinence
+- ⚡ Fun fact: I stopped drinking coffee for 3 years... Now I'm recovering from my abstinence (not really, I just stopped again)
